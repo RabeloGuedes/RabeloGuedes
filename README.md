@@ -1,4 +1,4 @@
-## Olá, eu sou o Alê Emmanuel Rabelo Guedes!
+## Hey, there! I'm Alê Emmanuel Rabelo Guedes!
 
 ## Technologies 👨‍💻
 </div>
